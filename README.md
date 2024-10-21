@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate in international environment working.
 - 📫 How to reach me nguyencsc1@gmail.com
 - 😄 Pronouns: :)
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I can play guitar, I also love to research science, design new system or new style architecture in my house.
 
 <!---
 BrianNg29/BrianNg29 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
