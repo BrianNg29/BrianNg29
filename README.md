@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BrianNg29
 - 👀 I’m interested in 3D media
 - 🌱 I’m currently learning Unreal Engine
-- 💞️ I’m looking to collaborate on international environmet working.
+- 💞️ I’m looking to collaborate in international environment working.
 - 📫 How to reach me nguyencsc1@gmail.com
 - 😄 Pronouns: :)
 - ⚡ Fun fact: ...
